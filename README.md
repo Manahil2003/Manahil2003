@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Anything**
 
-- 📫 How to reach me **xdmanahil2003@gmail.com**
+- 📫 How to reach me **HabibManahil2003@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
